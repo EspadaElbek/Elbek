@@ -1,0 +1,2 @@
+# Elbek
+mening birinchi Repositori
